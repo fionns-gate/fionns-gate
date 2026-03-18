@@ -1,5 +1,5 @@
   <br><br> 
-  <div align="left"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ms.gif)">
+  <div align="left"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ms.gif)"> <img src="https://blinkies.cafe/b/blinkiesCafe-8Y.gif">
   <div align="center">
 <img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
 <div align="center">
