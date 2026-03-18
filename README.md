@@ -5,7 +5,7 @@
   <img src="https://text.glitter-graphics.net/wiggle/a.gif" border=0>
   <img src="https://text.glitter-graphics.net/wiggle/t.gif" border=0>
   <img src="https://text.glitter-graphics.net/wiggle/s.gif" border=0>
-  <img src="https://dl3.glitter-graphics.net/empty.gif" width=20 border=0>
+  <img src="https://dl3.glitter-graphics.net/empty.gif" width=20>
   <img src="https://text.glitter-graphics.net/wiggle/u.gif" border=0>
   <img src="https://text.glitter-graphics.net/wiggle/p.gif" border=0>
   </a>
