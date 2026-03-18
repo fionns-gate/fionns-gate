@@ -1,8 +1,3 @@
-<br><br>
-
-<br><br>
-<p> <img src="https://i.pinimg.com/736x/cb/20/bd/cb20bd2812debc012b294e235e172cd8.jpg" width=100 height=200>
-</p>
   <br><br> 
   <div align="center">
 <img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
