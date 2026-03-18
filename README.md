@@ -1,5 +1,5 @@
 <br><br>
-<h1> 【 <img src="https://i.pinimg.com/736x/20/f1/92/20f192f62d67f6559b0fd8335d092b72.jpg" width="60"> 】／(^ × ^)＼【 <img src="blob:https://www.messenger.com/7f8fb275-c292-4ad3-891e-db1b69b5e929">
+<h1> 【 <img src="https://i.pinimg.com/736x/20/f1/92/20f192f62d67f6559b0fd8335d092b72.jpg" width="60"> 】／(^ × ^)＼【 <img src="[blob:https://www.messenger.com/7f8fb275-c292-4ad3-891e-db1b69b5e92](https://img.lazcdn.com/g/p/9cafc74a2e46aebd8f62855264c2245f.png_720x720q80.png)9"> 】
 <p> <img align="left" src="https://text.glitter-graphics.net/wiggle/w.gif"><img src="https://text.glitter-graphics.net/wiggle/h.gif"><img src="https://text.glitter-graphics.net/wiggle/a.gif"><img src="https://text.glitter-graphics.net/wiggle/t.gif"><img src="https://text.glitter-graphics.net/wiggle/s.gif"><img src="https://dl3.glitter-graphics.net/empty.gif" width="20"><img src="https://text.glitter-graphics.net/wiggle/u.gif"><img src="https://text.glitter-graphics.net/wiggle/p.gif">
 </p>
   <div align="center">
