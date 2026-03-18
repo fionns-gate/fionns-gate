@@ -10,5 +10,6 @@
   <img src="https://text.glitter-graphics.net/wiggle/u.gif" border=0>
   <img src="https://text.glitter-graphics.net/wiggle/p.gif" border=0>
   </a>
+  <div align="center">
   <br><br> 
-![gears](https://adriansblinkiecollection.neocities.org/buttons/h6.gif) ![gears](https://adriansblinkiecollection.neocities.org/buttons/h6.gif)  ![gears](https://adriansblinkiecollection.neocities.org/buttons/h6.gif) 
+<img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"> <img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"> <img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"> <img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
