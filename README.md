@@ -1,5 +1,5 @@
 <br><br> 
-  <a href="https://www.glitter-graphics.com/myspace/text_generator.php" target=_blank>
+  <a href="https://www.glitter-graphics.com/myspace/text_generator.php" target="_blank">
   <img src="https://text.glitter-graphics.net/wiggle/w.gif" border=0>
   <img src="https://text.glitter-graphics.net/wiggle/h.gif" border=0>
   <img src="https://text.glitter-graphics.net/wiggle/a.gif" border=0>
