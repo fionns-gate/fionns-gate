@@ -1,7 +1,7 @@
 <br><br>
 <h1> 【 <img src="https://i.pinimg.com/736x/20/f1/92/20f192f62d67f6559b0fd8335d092b72.jpg" width="60"> 】 </h1> 
 <br><br>
-<a> <img align="left" src="https://text.glitter-graphics.net/wiggle/w.gif"> <img src="https://text.glitter-graphics.net/wiggle/h.gif"> <img src="https://text.glitter-graphics.net/wiggle/a.gif"> <img src="https://text.glitter-graphics.net/wiggle/t.gif"> <img src="https://text.glitter-graphics.net/wiggle/s.gif"> <img src="https://dl3.glitter-graphics.net/empty.gif" width="20"> <img src="https://text.glitter-graphics.net/wiggle/u.gif"> <img src="https://text.glitter-graphics.net/wiggle/p.gif">
+<a> <img align="left" src="https://text.glitter-graphics.net/wiggle/w.gif"> <img src="https://text.glitter-graphics.net/wiggle/h.gif"> <img align="left" src="https://text.glitter-graphics.net/wiggle/a.gif"> <img src="https://text.glitter-graphics.net/wiggle/t.gif"> <img src="https://text.glitter-graphics.net/wiggle/s.gif"> <img src="https://dl3.glitter-graphics.net/empty.gif" width="20"> <img src="https://text.glitter-graphics.net/wiggle/u.gif"> <img src="https://text.glitter-graphics.net/wiggle/p.gif">
 </a>
   <div align="center">
   <br><br> 
