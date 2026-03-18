@@ -1,4 +1,5 @@
   <br><br> 
+  <div align="left"> <img src="https://r72.cooltext.com/rendered/cooltext504398727856147.png">
   <div align="center">
 <img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
 <div align="center">
