@@ -1,7 +1,7 @@
   <br><br> 
   <div align="left"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ms.gif)"> <img src="https://blinkies.cafe/b/blinkiesCafe-8Y.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-6K.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-8B.gif">
   <div align="center">
-<img src="https://media1.tenor.com/m/AZNbTy5fcksAAAAd/sonar-dispatch-sonar.gif"
+<img src="https://media1.tenor.com/m/AZNbTy5fcksAAAAd/sonar-dispatch-sonar.gif width=40% height=50%>
   <br><br>
 <img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
 <div align="center">
