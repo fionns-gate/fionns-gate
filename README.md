@@ -11,4 +11,4 @@
 
 MY PRONOUNS!!!!!!!!!!
 <br><br>
-<img src="https://adriansblinkiecollection.neocities.org/buttons/a68.gif"> and I am,... <img src="https://adriansblinkiecollection.neocities.org/stamps/e83.png">
+<img src="https://adriansblinkiecollection.neocities.org/buttons/a68.gif"> <h1> and I am,... </h1> <img src="https://adriansblinkiecollection.neocities.org/stamps/e83.png">
