@@ -1,7 +1,7 @@
 <br><br>
 
 <br><br>
-<p> <img align="left" src="https://text.glitter-graphics.net/wiggle/w.gif"><img src="https://text.glitter-graphics.net/wiggle/h.gif"><img src="https://text.glitter-graphics.net/wiggle/a.gif"><img src="https://text.glitter-graphics.net/wiggle/t.gif"><img src="https://text.glitter-graphics.net/wiggle/s.gif"><img src="https://dl3.glitter-graphics.net/empty.gif" width="20"><img src="https://text.glitter-graphics.net/wiggle/u.gif"><img src="https://text.glitter-graphics.net/wiggle/p.gif">
+<p> <img src="https://i.pinimg.com/736x/cb/20/bd/cb20bd2812debc012b294e235e172cd8.jpg">
 </p>
   <br><br> 
   <div align="center">
