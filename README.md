@@ -1,4 +1,5 @@
 <br><br>
+<img src="https://adriansblinkiecollection.neocities.org/dividers/youtube.gif" width=100%>
 <p> <img align="left" src="https://text.glitter-graphics.net/wiggle/w.gif"><img src="https://text.glitter-graphics.net/wiggle/h.gif"><img src="https://text.glitter-graphics.net/wiggle/a.gif"><img src="https://text.glitter-graphics.net/wiggle/t.gif"><img src="https://text.glitter-graphics.net/wiggle/s.gif"><img src="https://dl3.glitter-graphics.net/empty.gif" width="20"><img src="https://text.glitter-graphics.net/wiggle/u.gif"><img src="https://text.glitter-graphics.net/wiggle/p.gif">
 </p>
   <br><br> 
