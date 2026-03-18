@@ -9,4 +9,4 @@
 
 MY PRONOUNS!!!!!!!!!!
 <br><br>
-<img src="https://adriansblinkiecollection.neocities.org/buttons/a68.gif">
+<img src="https://adriansblinkiecollection.neocities.org/buttons/a68.gif"> and I am,... <img src="https://adriansblinkiecollection.neocities.org/stamps/e83.png">
