@@ -14,5 +14,5 @@
  <br> <img src="https://y2k.neocities.org/stamps/iygbnjki.gif"> <img src="
 </details>
 <br><br>
-<a href="https://open.spotify.com/track/2V4KhGrXSCeTQzmUzMQJkH" width="180">
+<a href="
 </a>
