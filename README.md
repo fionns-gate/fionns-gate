@@ -1,4 +1,4 @@
-<div align="center"> <h1> ​🇰​​🇪​​🇪​​🇵​ ​🇸​​🇨​​🇷​​🇴​​🇱​​🇱​​🇮​​🇳​​🇬​ ​🇵​​🇱​​🇸​​🇿​ </h1>
+<div align="center"> <h1> ​🇰​​🇪​​🇪​​🇵​ ​🇸​​🇨​​🇷​​🇴​​🇱​​🇱​​🇮​​🇳​​🇬​ ​🇵​​🇱​​🇸​​🇿​/this is a work in progress11!! </h1>
 <br><br>
   <div align="left"> <img src="https://media1.tenor.com/m/jYuYTBi0XToAAAAC/grey-blinkie.gif"> <img src="https://supplies.ju.mp/assets/images/gallery07/841f7de3_original.png?v=2e2c9a9d"> <img src="https://64.media.tumblr.com/69c8d9407a98a3dcc380c43a9292f698/b18aff3ce9323114-81/s250x400/036dc286f655d5ec174d083a555a25c7771db08f.gifv"> <img src="https://y2k.neocities.org/blinkiez/newbatch/yiCopC9.png"> <img src="https://y2k.neocities.org/blinkiez/newbatch/z8c9dh3.gif">
   <div align="left"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ms.gif)"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ze.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-QD.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-FC.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-ic.gif">
@@ -12,7 +12,8 @@
 <details>
   <summary> <img src="https://supplies.ju.mp/assets/images/tiny1/03533947.gif?v=2e2c9a9d"> <h1> hiii!! </h1> <img src="https://supplies.ju.mp/assets/images/gallery05/9bad71ea.gif?v=2e2c9a9d"> </summary>
   <br>
-  hello hello <img src="https://supplies.ju.mp/assets/images/tiny1/144940ad.gif?v=2e2c9a9d">
+  wsp,, im fionn/ray, i go by he/him or they/themmm,im trans & gay. bromance is my thing. <img src="https://supplies.ju.mp/assets/images/tiny1/144940ad.gif?v=2e2c9a9d">
+  my pfp is MY art, do NOT steal it, its on ttk. same as future artwork tht i'll prolly put here or on my strawpage, (in the making as well)
  <br> <img src="https://64.media.tumblr.com/06027fd5b5a4cebee001692c2cfe7f7d/a150b8283b99824b-a6/s100x200/9035de9d12c6ef2c92e1bd00c4d966cd540d08c0.pnj"> <img src="https://64.media.tumblr.com/e0b68275ed1cc54682ff2e1ed1c08368/a150b8283b99824b-97/s100x200/8a1588604fbd9aff8c433eedaa6b5f0796e61167.pnj">
 </details>
 <br><br>
