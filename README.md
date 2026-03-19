@@ -10,6 +10,6 @@
 <details>
   <summary> <img src="https://supplies.ju.mp/assets/images/tiny1/03533947.gif?v=2e2c9a9d"> <h1> hiii!! </h1> <img src="https://supplies.ju.mp/assets/images/gallery05/9bad71ea.gif?v=2e2c9a9d"> </summary>
   <br>
-  hello hello
+  hello hello <img src="https://supplies.ju.mp/assets/images/tiny1/144940ad.gif?v=2e2c9a9d">
  <br> skibidi text
 </details>
