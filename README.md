@@ -17,3 +17,7 @@
 <a href="https://open.spotify.com/track/4WNaefp3sGsnTBzHEQb97g?si=653c323074744f29">
 <p> <img src="https://i.pinimg.com/736x/ae/a7/54/aea7546d7a223dc5d3d100a39bf4cfba.jpg" width="180"> <img src="https://i.pinimg.com/736x/62/9f/6a/629f6a7012c71192d55c60cfed281620.jpg" width="180" height="300"> <img src="https://i.pinimg.com/736x/9d/6b/0e/9d6b0ef38830578c42b40d6401966a42.jpg" width="200"> </p> 
 </a> 
+  <br><br>
+<img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
+<div align="center">
+<img src="https://64.media.tumblr.com/7ae29596de1417acde283931f79ba9c9/e00fb671dc1925c4-17/s400x600/d02c3ac031a12f72d3a998ea1310633b2a7d8c96.pnj"> 
