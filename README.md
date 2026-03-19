@@ -8,10 +8,8 @@
 <div align="center">
 <img src="https://64.media.tumblr.com/7ae29596de1417acde283931f79ba9c9/e00fb671dc1925c4-17/s400x600/d02c3ac031a12f72d3a998ea1310633b2a7d8c96.pnj"> 
 <details>
-  <summary> <h1> hiii!! </h1> </summary>
+  <summary> <h1> hiii!! </h1> <img src="https://supplies.ju.mp/assets/images/gallery05/9bad71ea.gif?v=2e2c9a9d"> </summary>
   <br>
   hello hello
  <br> skibidi text
 </details>
-<br><br>
-<p> <img src="https://adriansblinkiecollection.neocities.org/buttons/a68.gif"> <img src="https://adriansblinkiecollection.neocities.org/stamps/e83.png"> </p>
