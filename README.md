@@ -13,7 +13,5 @@
   hello hello <img src="https://supplies.ju.mp/assets/images/tiny1/144940ad.gif?v=2e2c9a9d">
  <br> <img src="https://y2k.neocities.org/stamps/iygbnjki.gif"> <img src="
 </details>
-<br><br>
-<a href="https://open.spotify.com/track/2V4KhGrXSCeTQzmUzMQJkH"> 
-</a>
+<a href="https://open.spotify.com/track/2V4KhGrXSCeTQzmUzMQJkH">
 <img src="https://i.pinimg.com/736x/ae/a7/54/aea7546d7a223dc5d3d100a39bf4cfba.jpg">
