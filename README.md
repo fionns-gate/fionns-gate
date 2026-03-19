@@ -1,5 +1,5 @@
 <br><br>
-  <div align="left"> <img src="https://media1.tenor.com/m/jYuYTBi0XToAAAAC/grey-blinkie.gif">
+  <div align="left"> <img src="https://media1.tenor.com/m/jYuYTBi0XToAAAAC/grey-blinkie.gif"> <img src="https://supplies.ju.mp/assets/images/gallery07/841f7de3_original.png?v=2e2c9a9d">
   <div align="left"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ms.gif)"> <img src="https://blinkies.cafe/b/blinkiesCafe-yX.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-QD.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-6K.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-ic.gif">
   <div align="center">
 <img src="https://media1.tenor.com/m/AZNbTy5fcksAAAAd/sonar-dispatch-sonar.gif width="40%" height="50%"> 
