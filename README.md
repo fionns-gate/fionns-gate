@@ -11,8 +11,8 @@
   <summary> <img src="https://supplies.ju.mp/assets/images/tiny1/03533947.gif?v=2e2c9a9d"> <h1> hiii!! </h1> <img src="https://supplies.ju.mp/assets/images/gallery05/9bad71ea.gif?v=2e2c9a9d"> </summary>
   <br>
   hello hello <img src="https://supplies.ju.mp/assets/images/tiny1/144940ad.gif?v=2e2c9a9d">
- <br> <img src="https://y2k.neocities.org/stamps/iygbnjki.gif"> <img src="
+ <br> <img src="https://y2k.neocities.org/stamps/iygbnjki.gif"> <img src="https://64.media.tumblr.com/e0b68275ed1cc54682ff2e1ed1c08368/a150b8283b99824b-97/s100x200/8a1588604fbd9aff8c433eedaa6b5f0796e61167.pnj">
 </details>
 <br><br>
-<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/4WNaefp3sGsnTBzHEQb97g?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy">
+<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/4WNaefp3sGsnTBzHEQb97g?utm_source=generator" width="100%" height="352" frameBorder="0">
 </iframe>
