@@ -5,9 +5,9 @@
   <div align="center">
 <img src="https://media1.tenor.com/m/AZNbTy5fcksAAAAd/sonar-dispatch-sonar.gif" width="400">
   <br><br>
-<img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
+<img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
 <div align="center">
-<img src="https://64.media.tumblr.com/7ae29596de1417acde283931f79ba9c9/e00fb671dc1925c4-17/s400x600/d02c3ac031a12f72d3a998ea1310633b2a7d8c96.pnj"> 
+<img src="https://64.media.tumblr.com/7ae29596de1417acde283931f79ba9c9/e00fb671dc1925c4-17/s400x600/d02c3ac031a12f72d3a998ea1310633b2a7d8c96.pnj"> <img src="https://64.media.tumblr.com/7ae29596de1417acde283931f79ba9c9/e00fb671dc1925c4-17/s400x600/d02c3ac031a12f72d3a998ea1310633b2a7d8c96.pnj"> 
 <details>
   <summary> <img src="https://supplies.ju.mp/assets/images/tiny1/03533947.gif?v=2e2c9a9d"> <h1> hiii!! </h1> <img src="https://supplies.ju.mp/assets/images/gallery05/9bad71ea.gif?v=2e2c9a9d"> </summary>
   <br>
