@@ -3,7 +3,7 @@
   <div align="left"> <img src="https://media1.tenor.com/m/jYuYTBi0XToAAAAC/grey-blinkie.gif"> <img src="https://supplies.ju.mp/assets/images/gallery07/841f7de3_original.png?v=2e2c9a9d"> <img src="https://64.media.tumblr.com/69c8d9407a98a3dcc380c43a9292f698/b18aff3ce9323114-81/s250x400/036dc286f655d5ec174d083a555a25c7771db08f.gifv"> <img src="https://y2k.neocities.org/blinkiez/newbatch/yiCopC9.png"> <img src="https://y2k.neocities.org/blinkiez/newbatch/z8c9dh3.gif">
   <div align="left"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ms.gif)"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ze.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-QD.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-FC.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-ic.gif">
   <div align="center">
-<img src="https://media1.tenor.com/m/AZNbTy5fcksAAAAd/sonar-dispatch-sonar.gif width="400">
+<img src="https://media1.tenor.com/m/AZNbTy5fcksAAAAd/sonar-dispatch-sonar.gif" width="400">
   <br><br>
 <img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif"><img src="https://adriansblinkiecollection.neocities.org/buttons/h6.gif">
 <div align="center">
