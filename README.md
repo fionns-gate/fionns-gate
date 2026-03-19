@@ -13,6 +13,7 @@
 <details>
   <summary> <img src="https://supplies.ju.mp/assets/images/tiny1/03533947.gif?v=2e2c9a9d"> <h1> hiii!! </h1> <img src="https://supplies.ju.mp/assets/images/gallery05/9bad71ea.gif?v=2e2c9a9d"> </summary>
   <br>
+</details>
   wsp,, im fionn/ray, i go by he/him or they/themmm,im trans & gay. bromance is my thing. <img src="https://supplies.ju.mp/assets/images/tiny1/144940ad.gif?v=2e2c9a9d">
   my pfp is MY art, do NOT steal it, its on ttk. same as future artwork tht i'll prolly put here or on my strawpage, (in the making as well)
   <br><br> 
