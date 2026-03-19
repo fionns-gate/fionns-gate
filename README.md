@@ -1,4 +1,4 @@
-<img width="294" height="233" alt="image" src="https://github.com/user-attachments/assets/06dcca5c-1399-4f12-9c6f-95589996b4bd" />  <br><br>
+<br><br>
   <div align="left"> <img src="https://media1.tenor.com/m/jYuYTBi0XToAAAAC/grey-blinkie.gif">
   <div align="left"> <img src="https://blinkies.cafe/b/blinkiesCafe-Ms.gif)"> <img src="https://blinkies.cafe/b/blinkiesCafe-yX.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-QD.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-6K.gif"> <img src="https://blinkies.cafe/b/blinkiesCafe-ic.gif">
   <div align="center">
