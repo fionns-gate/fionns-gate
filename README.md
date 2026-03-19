@@ -14,7 +14,8 @@
   <summary> <img src="https://supplies.ju.mp/assets/images/tiny1/03533947.gif?v=2e2c9a9d"> <h1> hiii!! </h1> <img src="https://supplies.ju.mp/assets/images/gallery05/9bad71ea.gif?v=2e2c9a9d"> </summary>
   <br>
 </details>
-  wsp,, im fionn/ray, i go by he/him or they/themmm,im trans & gay. bromance is my thing. <img src="https://supplies.ju.mp/assets/images/tiny1/144940ad.gif?v=2e2c9a9d"> <img src="https://64.media.tumblr.com/06027fd5b5a4cebee001692c2cfe7f7d/a150b8283b99824b-a6/s100x200/9035de9d12c6ef2c92e1bd00c4d966cd540d08c0.pnj"> <img src="https://64.media.tumblr.com/e0b68275ed1cc54682ff2e1ed1c08368/a150b8283b99824b-97/s100x200/8a1588604fbd9aff8c433eedaa6b5f0796e61167.pnj">
+  img src="https://64.media.tumblr.com/06027fd5b5a4cebee001692c2cfe7f7d/a150b8283b99824b-a6/s100x200/9035de9d12c6ef2c92e1bd00c4d966cd540d08c0.pnj"> <img src="https://64.media.tumblr.com/e0b68275ed1cc54682ff2e1ed1c08368/a150b8283b99824b-97/s100x200/8a1588604fbd9aff8c433eedaa6b5f0796e61167.pnj">
+  wsp,, im fionn/ray, i go by he/him or they/themmm,im trans & gay. bromance is my thing. 
   my pfp is MY art, do NOT steal it, its on ttk. same as future artwork tht i'll prolly put here or on my strawpage, (in the making as well)
   <br><br> 
   <details>
