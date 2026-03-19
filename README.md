@@ -15,6 +15,6 @@
 </details>
 <br><br>
 <a href="https://open.spotify.com/track/4WNaefp3sGsnTBzHEQb97g?si=653c323074744f29">
-<img src="https://i.pinimg.com/736x/ae/a7/54/aea7546d7a223dc5d3d100a39bf4cfba.jpg" width="180">
+<img src="https://i.pinimg.com/736x/ae/a7/54/aea7546d7a223dc5d3d100a39bf4cfba.jpg" width="180"> <img src="blob:https://www.messenger.com/7efd92ed-43a5-44b5-9e17-1702df2c9806">
 </a>
 <br>
