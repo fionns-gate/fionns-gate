@@ -13,6 +13,7 @@
   hello hello <img src="https://supplies.ju.mp/assets/images/tiny1/144940ad.gif?v=2e2c9a9d">
  <br> <img src="https://y2k.neocities.org/stamps/iygbnjki.gif"> <img src="
 </details>
+<br><br>
 <a href="https://open.spotify.com/track/2V4KhGrXSCeTQzmUzMQJkH">
-<img src="blob:https://www.messenger.com/2dd70dc7-469b-4c41-a8b7-74a0a4a8207a">
+<img src="blob:https://www.messenger.com/2dd70dc7-469b-4c41-a8b7-74a0a4a8207a" width="180">
 </a>
