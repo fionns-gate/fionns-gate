@@ -11,7 +11,7 @@
   <summary> <h1> hiii!! </h1> </summary>
   <br>
   hello hello
-  i am fionn/ray
+ <br> skibidi text
 </details>
 <br><br>
 <p> <img src="https://adriansblinkiecollection.neocities.org/buttons/a68.gif"> <img src="https://adriansblinkiecollection.neocities.org/stamps/e83.png"> </p>
