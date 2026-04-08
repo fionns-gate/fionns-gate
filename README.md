@@ -20,7 +20,7 @@
   <br><br> 
   <details>
     <summary> <h1> my music taste?! </h1> </summary>
-  <br> yungblud, andrew wk, tyler the creator, tv girl, weezer, ...
+  <br> yungblud, andrew wk, tyler the creator, my chemical romance, tv girl, weezer, pierce the veil . . .
     check strawpage for my current fave songs if ya even care...
 </details>
 <br><br>
