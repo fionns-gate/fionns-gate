@@ -7,6 +7,10 @@ fave animal: snow leopardsssz x3 <br>
 i get kinda clingy or easily jealous with friends, but dont think about it too much... haha <br>
 i love drawing, listening to music, fashion, bracelets & accessories of all kinds. <br>
 people with no GH you'll prolly see me with: alex, milk, lj, and a few more people i havent asked the names of. <br>  </blockquote>
-<p align="justify"> la la la la la la la la la la la la 
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lhfesijngf56r5hlntrf2ezjdq&cover_image=true&theme=novatorem&show_offline=false&background_color=787d82&interchange=true&profanity=false&hide_remaster=false&bar_color=75c5c7&bar_color_cover=false">
+  </a>
+</p>
 <br clear="right">
 
