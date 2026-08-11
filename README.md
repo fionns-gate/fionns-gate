@@ -1,5 +1,5 @@
 <img align="right" src="image-removebg-preview (7).png" width="400">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=&weight=700&pause=1000&color=7BCDDACD&background=E8E8E800&width=435&lines=m....+mmreow...+mmmMMMREOW!?!" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"> <img src="https://readme-typing-svg.demolab.com?font=&weight=700&pause=1000&color=7BCDDACD&background=E8E8E800&width=435&lines=m....+mmreow...+mmmMMMREOW!?!" alt="Typing SVG align="center"" /></a>
 <p align="center">
 ...
 call me Fionn or Ray :) <br>
