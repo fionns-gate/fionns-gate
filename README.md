@@ -1,4 +1,4 @@
-<img align="right" src="image-removebg-preview (7).png" width="400">
+<img align="right" src="image-removebg-preview (7).png" width="390">
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=700&pause=10&color=7BCDDACD&background=E8E8E800&width=420&lines=if+its+the+end+of+the+world;you+%26+me+should+spend+the+rest+of+it;in+love." alt="Typing SVG"> </a> 
 <blockquote>... <br>
 call me Fionn or Ray :) <br>
