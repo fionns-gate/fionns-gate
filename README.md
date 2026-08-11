@@ -1,7 +1,7 @@
 <img align="right" src="image-removebg-preview (7).png" width="400">
 
-c*h always welcomed / i dont put int in my pony names as much as b4 cause im busy with school, but ill find the time to talk dw :3 
-call me Fionn or Ray :)
+c*h always welcomed / i dont put int in my pony names as much as b4 cause im busy with school, but ill find the time to talk dw :3 <br>
+call me Fionn or Ray :) <br>
 transmasc/gay guy
 fave animal: snow leopardsssz x3
 i get kinda clingy or easily jealous with friends, but dont think about it too much... haha
