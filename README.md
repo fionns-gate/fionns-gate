@@ -1,6 +1,6 @@
 <img align="right" src="image-removebg-preview (7).png" width="400">
 
-<p align="center" font color="#0e9dad"> c*h always welcomed / i dont put int in my pony names as much as b4 cause im busy with school, but ill find the time to talk dw :3 <br> </p>
+<p align="center" style="#0e9dad"> c*h always welcomed / i dont put int in my pony names as much as b4 cause im busy with school, but ill find the time to talk dw :3 <br> </p>
 call me Fionn or Ray :) <br>
 transmasc/gay guy <br>
 fave animal: snow leopardsssz x3 <br>
