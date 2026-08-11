@@ -2,7 +2,7 @@
 
 <p align="center">
 <style="color:#0e9dad;"> meow </font> </p>
-  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=mmm,...m+mmmMMMREOW!!!)](https://git.io/typing-svg) <br>
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=&weight=700&pause=1000&color=7BCDDACD&background=E8E8E800&width=435&lines=m....+mmreow...+mmmMMMREOW!)](https://git.io/typing-svg)
 call me Fionn or Ray :) <br>
 transmasc/gay guy <br>
 fave animal: snow leopardsssz x3 <br>
