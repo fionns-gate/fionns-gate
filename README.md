@@ -1,7 +1,7 @@
 <img align="right" src="image-removebg-preview (7).png" width="400">
 
 <p align="center">
-<font color="#0e9dad"> meow </font> </p>
+<style="color:#0e9dad;"> meow </font> </p>
 call me Fionn or Ray :) <br>
 transmasc/gay guy <br>
 fave animal: snow leopardsssz x3 <br>
