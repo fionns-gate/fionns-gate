@@ -7,5 +7,6 @@ fave animal: snow leopardsssz x3 <br>
 i get kinda clingy or easily jealous with friends, but dont think about it too much... haha <br>
 i love drawing, listening to music, fashion, bracelets & accessories of all kinds. <br>
 people with no GH you'll prolly see me with: alex, milk, lj, and a few more people i havent asked the names of. <br>  </blockquote>
-<br clear="right">
 <p align="justify"> la la la la la la la la la la la la 
+<br clear="right">
+
