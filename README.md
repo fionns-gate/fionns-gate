@@ -3,7 +3,7 @@
 <blockquote>... <br>
 𒆜 call me Fionn or Ray :) <br>
 transmasc/gay guy turning 5teen this december <br>
-
+<details> <summary>click</summary> nya </details>
 𒆜 i love drawing, listening to music, fashion, bracelets & accessories of all kinds. <br>
 people with no GH you'll prolly see me with: alex, milk, lj, and a few more people i havent asked the names of. <br>  </blockquote>
 <p align="center">
