@@ -11,6 +11,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31lhfesijngf56r5hlntrf2ezjdq&cover_image=true&theme=novatorem&show_offline=false&background_color=787d82&interchange=true&profanity=false&hide_remaster=false&bar_color=#75c5c7&bar_color_cover=false">
     <p align="center"> 1:35 ───ㅇ─────3:47 <br> ⇄ ◃◃ ⅠⅠ ▹▹ ↻ </p>
     <p> (yes whatever song's currently on is what 'm listening to atm) </p>
-<blockquote> <a href=</blockquote>
+<blockquote> <a href=</blockquote> <iframe src="https://en.pronouns.page/card/@weepingFionn?embed=true" style="border:0; width:100%; height:400px;" loading="lazy" referrerpolicy="no-referrer"><a href="https://en.pronouns.page/@weepingFionn" target="_blank" rel="noopener">@weepingFionn</a></iframe>
 <br clear="right">
 
